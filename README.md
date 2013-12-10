@@ -1,3 +1,5 @@
 Superwoman
 ==========
-That's the story of a super woman who had been 
+That's the story of a super woman who has been ....
+it's your yes you (the person that is reading this shit...) turn to continue the story ;)
+Just to add an other thing i just don't understand what's themmeaning of shit site...
